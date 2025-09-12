@@ -62,4 +62,6 @@ This guide is provided solely for educational purposes. The information aims to 
 
 
 
-Update:  23 August
+
+
+Update:  Friday 12 September 2025 link is active and clickable
